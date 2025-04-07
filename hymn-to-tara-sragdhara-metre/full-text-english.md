@@ -14,7 +14,7 @@
 
 # A Hymn to Tārā in Sragdharā Metre.
 
-### By Bhiksu Sarvajna Mitra of Kasmira.
+### By Bhikṣu Sarvajña Mitra of Kāśmīra.
 
 #### with
 
