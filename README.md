@@ -9,7 +9,7 @@ English - PDF | Biolinum | Atkinson | Cursive | Custom01 | Custom02
 Bengali - Plain Text  
 Bengali - PDF  
 
-## The Nyāya Sutrās of Gotama.
+## The Nyāya Sūtras of Gotama.
 
 English - Plain Text  
 English - PDF | Biolinum | Atkinson | Cursive | Custom01 | Custom02  
